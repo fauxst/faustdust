@@ -1,6 +1,13 @@
-# faustdust
+# fauxst
 
-house broken & A Good Boy :wolf:
+> fast dates, cheap cars
 
-> Not a clue what I'm effing doing in the digital epoch. Just a fag playing matchsticks.
->> **Whatever with your however.**
+just a fag playing with digital matchsticks
+
+house broken & a good boy :wolf:
+
+whatever with your however
+
+* * *
+
+-f
